@@ -5,6 +5,7 @@
 🩰Bailarina certificada 
 🖥️Capacitación TICS 
 🏫PFLC
+✨blink
 
 #horario
 |      HORA     | LUNES | MARTES | MIERCOLES | JUEVES | VIERNES |
